@@ -1,2 +1,3 @@
 # lolicidio
-vlog pro anita
+
+vlog pro-ana que te da consejos y experiencias hacerca de tener este estilo de vida...
